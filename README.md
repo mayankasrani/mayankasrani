@@ -19,7 +19,7 @@
 - How I waste my time watching Instagram reels 😅📱
 
 📫 How to reach me:
-- Email: mayank.asrani2@gmail.com 📧
+- Email: asrani.mayank2005@gmail.com 📧
 - LinkedIn: [Mayank Asrani](https://www.linkedin.com/in/mayankasrani/) 🔗
 
 😄 Pronouns: He/Him 🌈
